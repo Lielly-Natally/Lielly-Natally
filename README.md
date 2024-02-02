@@ -1,0 +1,5 @@
+- 👋 Oiii, meu nome é Lielly Nátally, prazer!
+- 📅 Tenho 17 anos
+- 🌱 Atualmente curso Informática para Internet no IFRN
+- 💞️ Apaixonada por design web e buscando aprender mais
+- 📧 
