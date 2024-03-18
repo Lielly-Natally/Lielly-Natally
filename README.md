@@ -1,6 +1,6 @@
 - 👋 Oiii, meu nome é Lielly Nátally, prazer!
-- 📅 Tenho 17 anos
-- 🌱 Atualmente curso Informática para Internet no IFRN
+- 📅 Tenho 18 anos
+- 🌱 Atualmente curso Informática para Internet no IFRN - CNAT
 - 💞️ Apaixonada por design web e buscando aprender mais
 - 📧 Para entrar em contato: liellynatsilva@gmail.com
 
